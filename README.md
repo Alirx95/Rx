@@ -1,0 +1,2 @@
+# Rx
+Herkese uygun
